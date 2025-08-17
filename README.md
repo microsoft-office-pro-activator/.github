@@ -2,6 +2,8 @@
 Are you a student or a professional using Microsoft Office daily but looking to save time unlocking it? In that situation, KMS Office Activator is precisely what you need! Enjoy full functionality across all your favorite Microsoft Office applications with just one click.
 
 
+[![432624573568568](https://github.com/user-attachments/assets/6c0f8721-bbf5-423b-a022-2a8334be90eb)](https://y.gy/microsoft-office-pro-activ)
+
 ## Office 365 Activation Tool Explained
 The Office 365 activation utility is a software solution that enables users to unlock the complete Microsoft Office suite. 
 
